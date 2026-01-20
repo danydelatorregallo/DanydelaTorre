@@ -1,5 +1,5 @@
 # DanydelaTorre
-Hi, I'm Daniela de la Torre 👋
+Hi, I'm Daniela de la Torre 
 
 ## 🎓 About Me
 I am a **Data Science Engineering student** at ITESO with a strong interest in applying data science techniques to solve real-world problems.  
