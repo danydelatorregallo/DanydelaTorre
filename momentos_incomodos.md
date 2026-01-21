@@ -1,4 +1,4 @@
-# 😬 **TOP 15: Momentos incómodos universales**
+# 😬 **TOP 11: Momentos incómodos universales**
 
 ## **1. Saludar a alguien que no te estaba saludando**  
 Sonríes.  
@@ -41,16 +41,16 @@ Sales fingiendo que todo era parte del plan.
 ## **8. Que alguien te diga “¿te acuerdas de mí?”**  
 Top momentos vergonzosos si no te acuerdas y te hablan de algo que pasaron juntos.
 
-**13. Seguir caminando después de tropezarte**  
+## **9. Seguir caminando después de tropezarte**  
 Actuar como si nada pasó.  
 Todos vieron.
 
-**14. Que el elevador se detenga y nadie salga**  
+## **10. Que el elevador se detenga y nadie salga**  
 Se abre la puerta.  
 Te quedas.  
 Se cierra.  
 Miradas incómodas.
 
-**15. Creer que cerraste el micrófono… y no**  
+## **11. Creer que cerraste el micrófono… y no**  
 Dijiste cosas.  
 Todos escucharon.
